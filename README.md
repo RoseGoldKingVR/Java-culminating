@@ -1,2 +1,2 @@
 # Java-culminating
-sigma aura? Or aura sigma? Hmmmm???
+Everything about github and this stupid java language pisses me off and makes no sense
